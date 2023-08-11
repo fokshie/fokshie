@@ -1,4 +1,4 @@
--  👋 Hi my name is Ahmed Elfiky , you can call me Jimmy , Daul citizenship & Bilingual , i live in Brooklyn,New York  
+-  👋 Hi my name is Ahmed Elfiky , you can call me Jimmy , Daul citizenship & Bilingual , I live in Brooklyn,New York  
 - 👀 I’m interested in ... Chess,tech,social media,computer science
 - Skills : Strong communication ,Custmor service,Team work or Independent, Time managment,Problem Solving,Work Ethics, I like to work under pressure 
 - 🌱 I’m currently learning ... Google Cybersecurity
